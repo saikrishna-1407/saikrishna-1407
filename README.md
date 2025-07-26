@@ -1,4 +1,1 @@
-
-
-https://github.com/user-attachments/assets/66037918-c4c8-4643-a4a8-8d843c21872b
-
+![monkey-d-luffy-straw-hat_800](https://github.com/user-attachments/assets/87d9593b-eda8-43b9-98c7-05873d039904)
